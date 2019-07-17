@@ -27,11 +27,10 @@ yaah
 all my reckless help in vain
 (you need me) such a farce 
 but i'm supposed to stay fierce 
-need no fuss so fuck your plates 
+need no fuss fuck your plates 
 i'm so done for days
 i'm so done for days
-tried to find your name
-true name
+tried to find your name (true name)
 
 single point of view so sustained
 
@@ -43,6 +42,15 @@ missing on purpose get this
 making a point but it usually (ain't) breakin
 some never wise enough
 to give up their stance
+their true name
+to be on a name to (blank) name basis (too blank to be on a name to name basis)
+with their self
+gettin
+the racking
+on whim so drop this
+hear that a lot now off miss
+missing on purpose get this 
+give up their stance
 their true name
 to be on a name to (blank) name basis (too blank to be on a name to name basis)
 with their self
