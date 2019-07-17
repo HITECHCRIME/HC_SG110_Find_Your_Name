@@ -29,7 +29,7 @@ but i'm supposed to stay fierce
 need no fuss fuck your plates 
 i'm so done for days
 i'm so done for days
-tried to find your name (true name)
+i tried to find your name (true name)
 
 single point of view so sustained
 
@@ -48,7 +48,7 @@ gettin
 the racking
 on whim so drop this
 hear that a lot now off miss
-missing on purpose get this 
+missing on purpose get this (so darkness)
 give up their stance
 their true name
 to be on a name to (blank) name basis (too blank to be on a name to name basis)
