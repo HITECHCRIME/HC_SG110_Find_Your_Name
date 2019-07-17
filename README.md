@@ -45,7 +45,9 @@ some never wise enough
 to give up their stance
 their true name
 to be on a name to (blank) name basis (too blank to be on a name to name basis)
-with self
+with their self
+
+so drop hiss
 
 
 
