@@ -35,6 +35,18 @@ true name
 
 single point of view so sustained
 
+gettin
+the racking
+on whim so drop this
+hear that a lot now off miss
+missing on purpose get this 
+making a point but it ain't breakin
+some never wise enough
+to give up their stance
+their true name
+to be on a name to name basis
+with self
+
 
 
 
