@@ -23,14 +23,19 @@ every day a plane aflight already with your craze
 you know
 gotta let you down
 you’d do the same in my place
-
-all my reckless help gin vain
-you need me such a farce 
+yaah
+all my reckless help in vain
+(you need me) such a farce 
 but i'm supposed to stay fierce 
 need no fuss so fuck your plates 
-so i'm done for days
+i'm so done for days
+i'm so done for days
+tried to find your name
+true name
 
 single point of view so sustained
+
+
 
 
 name
