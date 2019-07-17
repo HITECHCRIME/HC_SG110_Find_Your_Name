@@ -17,7 +17,6 @@ FREE * $UICIDEBOY$ - Under the bones [PHONK] Type Beat (Prod.NeighbouR)
 ## Lyrics
 
 ```
-
 every day i try to find your name
 every day a plane aflight already with your craze
 you know
@@ -55,12 +54,8 @@ their true name
 to be on a name to (blank) name basis (too blank to be on a name to name basis)
 with their self
 
-so drop hiss
-
-
-
-
-name
+so drop the hiss
+your true name
 
 ```
 
