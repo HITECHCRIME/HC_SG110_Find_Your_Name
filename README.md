@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ TITLE
+# MOTHNODE_ FIND YOUR NAME / TRUE NAME
 
 **Listen now:** x
 
@@ -12,7 +12,7 @@ FREE * $UICIDEBOY$ - Under the bones [PHONK] Type Beat (Prod.NeighbouR)
 
 **Title:**  / **Featuring:** 
 
-**Production:** (Prod.NeighbouR) / **Lyrics:** 
+**Production:** Prod.NeighbouR / **Lyrics:** 
 
 ## Lyrics
 
