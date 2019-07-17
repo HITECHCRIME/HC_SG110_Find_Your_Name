@@ -27,11 +27,12 @@ all my reckless help in vain
 (you need me) such a farce 
 but i'm supposed to stay fierce 
 need no fuss fuck your plates 
-i'm so done for days
+i was done for days
 i'm so done for days
 i tried to find your name (true name)
 
 single point of view so sustained
+such mistake ey
 
 gettin
 the racking
