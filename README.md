@@ -40,7 +40,7 @@ the racking
 on whim so drop this
 hear that a lot now off miss
 missing on purpose get this 
-making a point but it usually ain't breakin
+making a point but it usually (ain't) breakin
 some never wise enough
 to give up their stance
 their true name
