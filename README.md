@@ -54,6 +54,7 @@ give up their stance
 their true name
 to be on a name to (blank) name basis (too blank to be on a name to name basis)
 with their self
+with the sun
 
 so drop the hiss
 your true name
