@@ -57,10 +57,15 @@ with their self
 with the sun
 
 self-respecting
-you gonna laugh that off mate?
+you gonna laugh that off mate
+gives my missing purpose
+stay here while i search for the
+true name of the sun
 
 so drop the hiss
 your true name
+
+
 
 ```
 
