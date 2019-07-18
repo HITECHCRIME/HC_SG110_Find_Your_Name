@@ -31,7 +31,7 @@ i was done for days
 i'm so done for days
 i tried to find your name (true name)
 
-single point of view so sustained
+single point of view so sustained (selfsustained)
 such mistake ey hiss
 
 gettin
