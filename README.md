@@ -59,8 +59,6 @@ with the sun
 so drop the hiss
 your true name
 
-
-
 ```
 
 ## Lyrics Production
