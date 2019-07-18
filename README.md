@@ -32,7 +32,7 @@ i'm so done for days
 i tried to find your name (true name)
 
 single point of view so sustained
-such mistake ey
+such mistake ey hiss
 
 gettin
 the racking
