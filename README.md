@@ -49,8 +49,8 @@ gettin                                              /// selling
 the racking                                         /// self-respecting
 on whim so drop this                                /// you gonna laugh that off mate
 hear that a lot now off miss                        /// gives my missing purpose
-missing on purpose get this (so darkness)           /// stay here while i search for the
-give up their stance                                /// human nature
+missing on purpose get this (so darkness)           /// stay here, while i search for
+give up their stance                                /// human nature in the darkness missing
 their true name                                     /// true name of the sun
 to be on a name to (blank) name basis               /// (too blank to be on a name to name basis)
 with their self
