@@ -43,24 +43,18 @@ making a point but it usually (ain't) breakin
 some never wise enough
 to give up their stance
 their true name
-to be on a name to (blank) name basis (too blank to be on a name to name basis)
+to be on a name to (blank) name basis               /// (too blank to be on a name to name basis)
 with their self
-gettin
-the racking
-on whim so drop this
-hear that a lot now off miss
-missing on purpose get this (so darkness)
-give up their stance
-their true name
-to be on a name to (blank) name basis (too blank to be on a name to name basis)
+gettin                                              /// selling 
+the racking                                         /// self-respecting
+on whim so drop this                                /// you gonna laugh that off mate
+hear that a lot now off miss                        /// gives my missing purpose
+missing on purpose get this (so darkness)           /// stay here while i search for the
+give up their stance                                /// human nature
+their true name                                     /// true name of the sun
+to be on a name to (blank) name basis               /// (too blank to be on a name to name basis)
 with their self
 with the sun
-
-self-respecting
-you gonna laugh that off mate
-gives my missing purpose
-stay here while i search for the
-true name of the sun
 
 so drop the hiss
 your true name
@@ -86,3 +80,5 @@ your true name
 ## Notes
 
 ## Music Video
+
+Staring at the sun until my retinas dissolve.
