@@ -56,6 +56,9 @@ to be on a name to (blank) name basis (too blank to be on a name to name basis)
 with their self
 with the sun
 
+self-respecting
+you gonna laugh that off mate?
+
 so drop the hiss
 your true name
 
