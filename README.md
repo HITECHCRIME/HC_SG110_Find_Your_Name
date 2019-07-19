@@ -47,7 +47,7 @@ to be on a name to (blank) name basis               /// (too blank to be on a na
 with their self
 gettin                                              /// selling 
 the racking                                         /// self-respecting
-on whim so drop this                                /// you gonna laugh that off mate
+on whim so drop this                                /// you gonna laugh that off mate /// so fuck this
 hear that a lot now off miss                        /// gives my missing purpose
 missing on purpose get this (so darkness)           /// stay here, while i search for
 give up their stance                                /// human nature in the darkness missing
@@ -55,6 +55,8 @@ their true name                                     /// true name of the sun
 to be on a name to (blank) name basis               /// (too blank to be on a name to name basis)
 with their self
 with the sun
+
+
 
 so drop the hiss
 your true name
